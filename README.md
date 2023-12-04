@@ -1,1 +1,0 @@
-# seminar12_po
